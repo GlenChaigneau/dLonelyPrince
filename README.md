@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dLonelyPrince
+- 👀 I’m interested in Cybersecurity
+- 🌱 I’m currently studying for a Bachelor IT Developer cybersecurity option.
+- 📝 I’m looking  for an internship in a company (Cybersecurity) from 8 to 16 weeks (May 2023 / September 2023) 📝 
+- 📫 How to reach me : https://www.linkedin.com/in/glen-chaigneau/ or glenchaigneau@hotmail.fr
